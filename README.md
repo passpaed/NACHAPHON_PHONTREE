@@ -1,2 +1,0 @@
-# NACHAPHON_PHONTREE
-My Name is PAED 
